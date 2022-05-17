@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Gsxr-is-stupid
+- 👀 I’m interested in coding,developing,and most importantly helping the comunity
+- 🌱 I’m currently learning on more advanced coding,developing and a whole lot more
